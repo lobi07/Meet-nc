@@ -1,3 +1,5 @@
-Meet NC
+Projet SEO_Lorry Biret
 
-Website meeting
+Projet: Site de rencontre
+Nom du projet : Meet NC
+
